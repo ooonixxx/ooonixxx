@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects, coding challenges, and AI research.
 
-📫 How to reach me [your email or social media handle]
+📫 How to reach me [imrane.achaari@gmail.com]
 
 😄 Pronouns: he/him
 
